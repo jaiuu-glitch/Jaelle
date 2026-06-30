@@ -1,8 +1,8 @@
-# Sobre o quão bom é escutar Baco
-## Ele é o meu cantor favorito!!!! DO MUNDOOOOOO!
+# Sobre o quão bom é escutar Dua Lipa
+## Ele é o meu cantor favorita!!!! DO MUNDOOOOOO!
 **Gostosas ouvim baco**
 _Eu amo essa música_
-[baco- DYNAMITE](https://m.youtube.com/watch?v=xqvg1rJs3j4&pp=ygURQkFDTyBFWFUgREUgQkxVRVM%3D)
-_ Baco Exu De Blues
-_ Uma das menores musicas são samba in paris e sei partir 
-![kylian Mbappe Real Madrid](https://media1.tenor.com/m/4AKEz_lxHpQAAAAd/kylian-mbappe-mbappe.gif)
+[Dualipinha- DYNAMITE](https://www.youtube.com/watch?v=DkeiKbqa02g)
+_ Ela é a maioralllllllll
+_ Uma das menores musicas dela é "One Kiss"
+![Dua lipa Houdini Hair Flip Whip Gif](https://media1.tenor.com/m/r8QVmQfThl0AAAAC/dua-lipa-houdini-hair-flip-hair-whip.gif)
